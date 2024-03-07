@@ -32,6 +32,6 @@ This work is licensed under a Creative Commons Attribution-ShareAlike 4.0 Intern
 
 ## Contact
 
-For any questions or feedback regarding these materials, please feel free to contact [Your Name or Institution's Contact Information].
+For any questions or feedback regarding these materials, please feel free to contact with me Paschalis Moschogiannis.
 
 
